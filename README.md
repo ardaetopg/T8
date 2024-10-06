@@ -1,1 +1,1 @@
-Use the https://github.com/Latte248/SpaceSoftware/wiki page to view all of the links
+Use the https://github.com/ardaetopg/T8/wiki page to view all of the links about model
